@@ -1,3 +1,41 @@
+## Welcome to fckthtsht
+Follow me on [twitter](https://twitter.com/gfbfggbg) to see more updates on this website
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/Salutatorian/fckthtsht/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
